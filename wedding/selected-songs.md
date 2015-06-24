@@ -1,0 +1,16 @@
+- Tanju Okan - Kadınım
+- Belkıs Özener Sevemedim Kara Gözlüm
+- Melike Demirağ - Arkadaş
+- Erkin Koray - Sevince (1975)
+- Senden Baska
+- Işıl German - Biliyorum Sensin O
+- Oh Olsun
+- Erkin Koray - Yanlızlar Rıhtımı
+- Beyaz Kelebekler - Yalan Dunya
+- To Vals Tou Gamou - Eleni Karaindrou
+- Stavros Lantsias-Vals Of The Eyes
+- Pink Panther Theme Song
+- Elvis Presley - in the ghetto
+- Elvis Presley - Can't Help Falling In Love
+- Elvis Presley - Always On My Mind
+- Concierto de Aranjuez. Rodrigo
